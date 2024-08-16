@@ -1,1 +1,1 @@
-# dekopinda-kota-pematangsiantar
+# dekopinda-karanganyar
